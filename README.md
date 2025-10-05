@@ -1,5 +1,5 @@
 
-# Quantum Resonance Codex: A Unified Framework for Solving the Millennium Problems
+# Quantum Resonance Theory: A Unified Framework for Solving the Millennium Problems
 
 **James Trageser**  
 [x.com/jtrag](https://x.com/jtrag)  
