@@ -1,7 +1,7 @@
 
 # Quantum Resonance Theory: A Unified Framework for Solving the Millennium Problems
 
-**James Trageser**  
+**NO LICENSE- Copyright James Trageser**  
 [x.com/jtrag](https://x.com/jtrag)  
 *October 4, 2025*
 
